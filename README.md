@@ -1,0 +1,1 @@
+link naar site steenkolenmijn museum: http://31888.hosts1.ma-cloud.nl/Steenkolenmijnmuseum-Limburg/index.html
